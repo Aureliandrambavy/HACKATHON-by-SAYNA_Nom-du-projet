@@ -1,1 +1,1 @@
-# HACKATHON-by-SAYNA_Nom-du-projet
+# HACKATHON-by-SAYNA_Lokintsika
